@@ -20,5 +20,5 @@ I am currently transitioning into the tech field and working toward building ski
 
 
 
-I specialize in communication, organization, and creating positive client experiences.
+
 I am passionate about learning, problem-solving, and using data to improve efficiency.
